@@ -87,7 +87,7 @@
 
 ## Contact Me
 
-﹒[Discord](https://discord.gg/fQXQZG5hvX)
+﹒[Discord](https://discord.gg/MBPnjwpmNE)
 ﹒[Telegram](https://t.me/kais2tools)
 
 
